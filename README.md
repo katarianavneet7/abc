@@ -1,1 +1,0 @@
-# gurudevonline.github.io
